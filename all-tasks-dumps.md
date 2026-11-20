@@ -1,0 +1,25 @@
+# All tasks
+
+- Laptop cloud management
+- Airtel wifi return
+- Suitcase repair
+- Home arrange products
+- **Confirmation from DTCC**
+- Locate one place for stay
+- Start gym training
+- **Parents - reduce cholestral**
+- Hari anna speak
+- Family speaks
+- **Figure out way for 5lacs/Month**
+- **Control addictions**
+- face care
+- Hair care
+- Increase performance
+- Diets
+- **Find career paths**
+- **Take health insurance (parents)**
+- Morning wakeup routine
+- Dress management
+- Soft skills
+- **Get money from others(1,100 + 600 + 300 + 2000)**
+- **Complete devops studying**
