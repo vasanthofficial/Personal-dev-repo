@@ -23,3 +23,4 @@
 - Soft skills
 - **Get money from others(1,100 + 600 + 300 + 2000)**
 - **Complete devops studying**
+- **Get allocation devops roles**
