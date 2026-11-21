@@ -4,7 +4,7 @@
 - Airtel wifi return
 - Suitcase repair
 - Home arrange products
-- **Confirmation from DTCC**
+- **Confirmation from DTCC**🛑
 - Locate one place for stay
 - Start gym training
 - **Parents - reduce cholestral**
